@@ -4,4 +4,6 @@ yooooo whats up happy thursdsay
 
 this is josh writing :)))
 
-i love four day weeks!
+isabella is also writing and josh loves four day weeks!
+
+
