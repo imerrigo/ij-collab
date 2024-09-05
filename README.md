@@ -7,3 +7,4 @@ this is josh writing :)))
 isabella is also writing and josh loves four day weeks!
 
 
+colorado has amazing blue skies
